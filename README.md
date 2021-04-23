@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @RaichuX3
+- 📫 You can reach me through discord : Raichu#7172
